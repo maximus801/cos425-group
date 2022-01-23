@@ -12,3 +12,6 @@ I spent most of my winter break inside working on programming projects. One in p
 
 ## Joshua Herreid
 I spent most of my winter break doing very little. I caught a case of covid right before Christmas so I spent most of the holidays inside finding ways to entertain myself. I learned how to sew and made a shirt, did several puzzles, and cooked a wide variety of dishes. When I wasn't sick I went on several hikes and foolishly attempted to make a gym resolution for the new year. 
+
+## Tiffany
+Over the winter break, my partner and I travelled to New Jersey to spend Christmas with her family. When we got back, we spent a majority of our time at home because of Covid. However, we spent some time seeing my many nieces and nephews, and enjoyed our break with some homebody activities. I played a lot of video games, particularly Red Dead Redemption 2, Valorant, and Enderal. Additionally, I purchased a Raspberry Pi Pico and I have been toying around with wiring and programming that.
