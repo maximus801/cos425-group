@@ -24,3 +24,6 @@ Over the winter break, my partner and I travelled to New Jersey to spend Christm
 
 ## Tomomi Bahun
 I spent most of my time at home during the winter break. I watched a British baking show, and it made me want to learn baking. I practiced baking some fun stuff, like macarons and cream puffs, and they came out good. Also, I purchased the entire series of Demon Slayer books and enjoyed reading them. They were expensive, but I thought they were worth buying.
+
+## Cooper Duncan
+I spent the majority of the winter break relaxing in preparation for the spring semester. I spent alot of my time playing games with friends and hanging out with my girlfriend. My brother decided to move out and got his own place so I helped him with all the moving. Other than that, I just tried to enjoy the break the best I could.
