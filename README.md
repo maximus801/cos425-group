@@ -24,3 +24,6 @@ Over the winter break, my partner and I travelled to New Jersey to spend Christm
 
 ## Tomomi Bahun
 I spent most of my time at home during the winter break. I watched a British baking show, and it made me want to learn baking. I practiced baking some fun stuff, like macarons and cream puffs, and they came out good. Also, I purchased the entire series of Demon Slayer books and enjoyed reading them. They were expensive, but I thought they were worth buying.
+
+## Max Carter
+During winter break, we had my sister and her newborn baby come visit from California.  This was especially great because I had not yet met their baby, nor had my nearly one year old son, who seemed to recognize her from the many Facetimes. After Christmas, it was a lot of cool down and clean time at our house, though my wife and I did manage to get to Thompson's point and go skating for our anniversary (We had our first date there).
